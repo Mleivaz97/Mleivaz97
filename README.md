@@ -36,8 +36,8 @@ I am open to collaborating on industrial automation, advanced analytics, AI-driv
 
 ## Contact & Professional Links
 
-- [LinkedIn](https://www.linkedin.com/in/Marcelo-Leiva)
-- Email: your@email.com
+- [LinkedIn](https://www.linkedin.com/in/cmlz/)
+- Email: marceloleivazw@gmail.com
 
 Languages: fluent in **English**, **Spanish**, and proficient in **German**.
 
